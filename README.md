@@ -10,7 +10,7 @@ In other words... if that event didn't happen, something important today wouldn'
 Photos, documents, videos, chats, drawings, songs... anything that allows us to travel back in time iykwim.
 
 ### 3. Deadline?<br/>
-Yes, this is a short-term archive. All the stuff here will be used in a special mini-something for the Club.
+Yes, this is a short-term archive. All the stuff here will be used in a special mini-something for the Club.<br/>
 Suggested cut-off: End of August 2020
 
 <br/>
