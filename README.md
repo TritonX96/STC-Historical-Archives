@@ -1,4 +1,5 @@
 # STC-Historical-Archives
+![Alt text](/wadd.png?raw=true "Optional Title")<br/>
 Anything of historical significance to the Sunway Tech Club must and should be uploaded here for the time being. We're going to do something cool.
 <br/>
 <br/>
